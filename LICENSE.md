@@ -1,4 +1,4 @@
-# 
+# Professionnel DaVinci Resolve pour PC extensions est le meilleur DaVinci Resolve pour PC extensions avec contrôle du débit binaire et compression. Sécurisé, fiable et optimisé
 
 
 
